@@ -3,5 +3,8 @@
 <br>
 
 <div  align="right">
-hi
+Rottyn $\color{MediumSeaGreen}{\textsf{or}}$ Odyssey $\color{MediumSeaGreen}{\textsf{or}}$ ParrotX2
+</div>
+<div  align="right">
+nineteen  intersex boygirl  gaybian ☆ zombie && computer otherkin
 </div>
