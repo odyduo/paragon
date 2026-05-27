@@ -7,7 +7,7 @@
 Rottyn ノ Odyssey ノ ParrotX2 ⠀★ ⠀tkn do not flirt with
 </div>
 <div  align="right">
-nineteen ⠀intersex boygirl ⠀gaybian ☆ zombie && computer otherkin
+nineteen ⠀intersex boygirl ⠀gaybian ☆ zombie computer
 </div>
 <div  align="right">
 prob off out ⠀dont cuddle ⠀oti but im kinda awkward sos
