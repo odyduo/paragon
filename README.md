@@ -3,7 +3,7 @@
 <br>
 
 <div  align="right">
-Rottyn $\color{mediumseagreen}{\textsf{or}}$ Odyssey $\color{mediumseagreen}{\textsf{or}}$ ParrotX2
+Rottyn $\color{mediumseagreen}{\textsf{ or }}$ Odyssey $\color{MediumSeaGreen}{\textsf{ or }}$ ParrotX2
 </div>
 <div  align="right">
 nineteen ⠀intersex boygirl ⠀gaybian ☆ zombie && computer otherkin
